@@ -1,0 +1,1 @@
+ Hi, I’m mehmood kalhoro, I am A Full-stack Developer 👀 I’m interested in Coding , Learning and Eating  I’m currently learning Web And App Development  I’m looking to collaborate on Development or Technology 📫 I Want To Make A SuccessFul And A Big Bussiness In My Life
